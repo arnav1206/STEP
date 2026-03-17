@@ -1,2 +1,0 @@
-# STEP
-STEP Programming SRMIST
